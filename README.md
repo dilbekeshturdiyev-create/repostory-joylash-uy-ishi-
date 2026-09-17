@@ -1,1 +1,1 @@
-# repostory-joylash-uy-ishi-
+# smartfon
